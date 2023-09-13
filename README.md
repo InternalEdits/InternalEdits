@@ -1,4 +1,3 @@
-Hi, I'm internal edits
-i currently do event horizon frontier and RPG content
-we an have open collab for EHF on youtube
-you can reach out to contact me on discord Internal_Edits or Internal_Edits._.
+Hello, call me Internal. A soon to be content creator and Moderator for hire in a discord server. This account is inactive and is there for reference
+
+discord - https://discord.gg/GgmFpwVhqw
